@@ -14,7 +14,7 @@
 
 - 👨‍💻 All of my projects are available here **[https://github.com/hotblooded058]**
 
-- 📫 How to reach me **nightmareisalone@gmail.com**
+- 📫 How to reach me **beherasachin2001@gmail.com**
 
 - ⚡ Fun fact **I play games and go to the GYM very often.**
 
